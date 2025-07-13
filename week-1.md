@@ -1,5 +1,4 @@
 # Week 1: Mediterranean/European Cluster
-*Each recipe cooked 2x for initial dinner + next day lunch & dinner*
 
 *Focus: Celery, spinach, carrots, lemon, parsley*
 
