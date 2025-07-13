@@ -9,9 +9,11 @@
 - 10 large carrots
 - 10 celery stalks
 - 2 red bell peppers
+- 6 cans diced tomatoes (14oz)
 - 16 cups spinach
 - 2 zucchini
 - 1 large ginger piece
+- 2 cans coconut milk (14oz)
 - 4 lemons
 - 2 limes
 - 2 cups parsley
